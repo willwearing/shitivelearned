@@ -24,4 +24,4 @@
 22. Have a northstar - have goals that matter to you - set them in the 7 areas of life - track them! 
 23. What gets measured gets done - see rule 22
 24. Invest early and often - see rule 2 - understand compound interest and the effects it has over 10, 20, 30, 40 and 50+ years - the effects will shock you
-25. 
+25. Be humble in victory and gracious in defeat
