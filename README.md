@@ -25,3 +25,4 @@
 23. What gets measured gets done - see rule 22
 24. Invest early and often - see rule 2 - understand compound interest and the effects it has over 10, 20, 30, 40 and 50+ years - the effects will shock you
 25. Be humble in victory and gracious in defeat
+26. All things in moderation 
